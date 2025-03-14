@@ -1,0 +1,1 @@
+# minesuz.github.io
